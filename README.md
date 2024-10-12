@@ -6,4 +6,4 @@
 
 . 📫 How to reach me: Mail me at  kunals2308@gmail.com.
 
-. ⚡ Fun fact: A basketball head.
+. 🏀 Fun fact: A basketball head.
